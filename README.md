@@ -1,1 +1,0 @@
-# GalaxyNote9Wallpapers1
